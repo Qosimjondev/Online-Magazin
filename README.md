@@ -1,0 +1,2 @@
+"# Qosimjondev-YozyovonBozor" 
+# online magazin
